@@ -1,1 +1,1 @@
-
+This folder will contain superceded drafts of the Indigenous Language license agreement, for reference purposes.
